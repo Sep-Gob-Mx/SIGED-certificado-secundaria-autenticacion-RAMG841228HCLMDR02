@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-RAMG841228HCLMDR02
+RAMG841228HCLMDR02
